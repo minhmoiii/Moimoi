@@ -9,7 +9,7 @@ Cách chơi vô cùng đơn giản :
 
 | Số điện thoại | Cược tối thiểu | Cược tối đa |
 | ----------- | ----------- | ----------- |
-| 0778346310 | 100₫ | 1.000₫ |
+| [0778346310](https://me.momo.vn/quangminh06) | 100₫ | 1.000₫ |
 | 0969151058 | 100.000.000₫ | 1.000.000.000₫ |
 
 - Nội dung chuyển : C hoặc L (nếu đuôi mã giao dịch có các số sau)
